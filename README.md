@@ -1,0 +1,4 @@
+- 👋 olá meu nome é ligiane 
+- 👀 meus interesses é estudar muito para ser uma militar 
+- 🌱 no momento estou aprendendo scratch , github , alura, javascript . 
+- 📫 como chegar até mim , ligiane.araujo@escola.pr.gov.br ❤️
